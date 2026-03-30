@@ -7,7 +7,7 @@
 ***DNC***, skin style changes very often~ I may have poor sleep & mood swings, but please feel free to sit ‎ & ‎ interact with me. 
 
 
-‎  ‎ ‎!! ‎ <a href="https://rentry.co/gyjos">my rentry</a> 🐴 !!
+‎  ‎ ‎!! ‎ <a href="https://rentry.co/gyjos">my rentry</a> 🐴 !! <i>(big FAT liar. I need to wait to put info in it Haha..)</i>
 
 
  </div>
