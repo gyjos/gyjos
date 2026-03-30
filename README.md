@@ -4,7 +4,7 @@
 
 <img width="45%" src="https://i.postimg.cc/c4qRVSy0/Tumblr_l_31118534615009.png"><br>      
 
-***DNC***, skin style changes very often~ I may have poor sleep & mood swings, but please feel free to sit ‎ & ‎ interact with me. 
+***DNC***, skin style changes very often~ I may be very awkward and shy, but please feel free to sit ‎ & ‎ interact with me. (#PoorSleep & #MoodSwings Freak) 
 
 
 ‎  ‎ ‎!! ‎ <a href="https://rentry.co/gyjos">my rentry</a> 🐴 !! <i>(big FAT liar. I need to wait to put info in it Haha..)</i>
