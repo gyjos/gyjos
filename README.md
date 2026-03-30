@@ -7,7 +7,7 @@
 ***DNC***, skin style changes very often~ I may be awkward and shy, but please feel free to sit & ‎interact with me. I have no dni! (#PoorSleep/#MoodSwings Freak)
 
 
-‎  ‎ ‎!! ‎ <a href="https://rentry.co/gyjos">my rentry</a> 🐴 !! 
+‎  ‎ ‎!! ‎ <a href="https://rentry.co/gyjos">my rentry for more info</a> 🐴 !! 
 
 
  </div>
